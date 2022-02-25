@@ -1,1 +1,0 @@
-# Parcial-1-Fundamentos-de-la-Nube
